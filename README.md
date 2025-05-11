@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **waliadhruv100@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1d0I8BDutqlVqdnGnO_f3FM4hOnJpJ2e3/view?usp=sharing](https://drive.google.com/file/d/1d0I8BDutqlVqdnGnO_f3FM4hOnJpJ2e3/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1d0I8BDutqlVqdnGnO_f3FM4hOnJpJ2e3/view?usp=sharing](https://drive.google.com/file/d/13wEj2t2ozWVzg14X2Ux375FkXxIBqne_/view?usp=sharing)
 
 - ⚡ Fun fact **I think I am Funny**
 
